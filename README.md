@@ -9,7 +9,7 @@
    
  Week6: https://mimicproject.com/code/a3a5bbca-1c46-6e69-93f0-cd9729afb87e  
   
- Week7:  
+ Week7: https://mimicproject.com/code/2562c23d-5c89-30be-ff54-19dbf00782f5   
    
  Week8:  
   
